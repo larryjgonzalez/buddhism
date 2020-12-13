@@ -18,15 +18,17 @@ A practice session should last between one and two hours. It is recommended to a
 A practice session should have three main parts: preliminaries, main practice, and a conclusion.
 
 ### Preliminaries
-*   Analyze your motivation and correct it if necessary.
+*   Analyze your motivation and correct it if necessary
 *   Postrations (x3)
 *   Exhale the stale breath (x9)
 *   Chant chants number 11, 14, 15, 16, 3, 4 of our [chanting book]()<sup>4</sup>
 *   Visualization of light, according to previous experiences<sup>4,5</sup>
 *   Chant chant number 1 of our [chanting book]()<sup>4</sup>
 
+
 ### Main Practice (TBC<sup>6</sup>)
 There are some options and combinations to choose:
+
 
 #### Postrations + Bodhychitta
 #### Refugio
@@ -34,7 +36,6 @@ There are some options and combinations to choose:
 #### Vajrasattva
 #### Mandala offering
 #### Guru Yoga
-
 
 ### Conclusion
 *   Chant second and third part of chant 19 of our [chanting book]()<sup>4</sup>
@@ -44,6 +45,7 @@ There are some options and combinations to choose:
 
 ## Aknowledgement
 I thank V.K. for all the help developing this plan.
+
 
 ## Notes
 1: This is my first plan for a solo spiritual retreat  
