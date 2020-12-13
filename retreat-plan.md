@@ -1,6 +1,6 @@
 # A Retreat Plan
 
-**Important**: Do not consider this document as a guide for your activities. Please always consult wit a more cualified guide. This document contain a plan that I am planning to follow for the first time during my holydays.
+**Important**: Do not consider this document as a guide for your activities. Please always consult wit a more qualified guide. This document contain a plan that I am planning to follow for the first time during my holydays.
 
 A retreat is a period of time in wich your main activity will be the practice of spiritual activities. A retreat plan is a guide to develop you retreat<sup>1</sup>.
 
