@@ -46,9 +46,9 @@ There are some options and combinations to choose:
 I thank V.K. for all the help developing this plan.
 
 ## Notes
-1: This is my first plan for a solo spiritual retreat.
-2: Citations are needed.
-3: We use recommended because you can do those activities if you prefer. Please consider this just a suggestion, not as an obligation.
-4: I think I can not make this freely available. A
-5: Not documented
-6: To be completed
+1: This is my first plan for a solo spiritual retreat  
+2: Citations are needed  
+3: We use recommended because you can do those activities if you prefer. Please consider this just a suggestion, not as an obligation  
+4: I think I can not make this freely available  
+5: Not documented  
+6: To be completed  
